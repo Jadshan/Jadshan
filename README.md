@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi there Im Jadshan 👋
+🎓 I am currently pursuing Bsc. Special in Information Systems in [Sabaragamuwa University of Sri Lanka](https://www.sab.ac.lk/).
 <!--
 **Jadshan/Jadshan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
